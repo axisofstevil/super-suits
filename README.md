@@ -14,4 +14,4 @@ Sourced from [Kristen](http://www.barnonedrinks.com/games/s/suits-525.html)
 
 Super rules
 ----------
-When "the first person to be dealt the suit named has to drink the the number the card specifies", they have the option to drink with the counting as indicated in the original rules, or they can challenge the dealer to one of the attached [challenges](challenges.md).
+When "the first person to be dealt the suit named has to drink the the number the card specifies", they have the option to drink with the counting as indicated in the original rules, or they can challenge the dealer to one of the attached [challenges](CHALLENGES.md).
