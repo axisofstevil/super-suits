@@ -3,134 +3,128 @@ Challenges
 
 Rock Paper Scissors
 ------------
-Traditional rules, as decided by the other players. Best of three wins.
+The competitors engage in three traditional rock-paper-scissors matches. The competitor with the most victories wins. Traditional rules, as decided by the non-competing players.
 
 Staring Contest
 ------------
-Traditional rules, as decided by the other players. First to laugh loses. Other players are encouraged to help distract.
+The competitors must remain silent and look at each other in the face. The first competitor to laugh or speak loses. Non-competing players should do their best to distract the competitors.
 
 Spelling Bee
 ------------
-Each player is given pen, paper, and a word to spell. Should both players spell the word correctly, another word is issued. This continues until a player mispells a word. Player with closest spelling, as decided by other players, wins.
+Each competitor receives a pen and a piece of paper. The non-competing players suggest a word to spell. The competitors spell the word on the paper. Should both competitors spell the word correct, non-competing players suggest a new word. This continues until a competitor misspells a word. If both competitors fail to spell the word, the competitor with the closest spelling. The non-competing players decide "closest spelling."
 
 Busy Buttons
 ------------
-Each player is given a button up shirt. First to button five buttons wins.
+Each competitor dresses in a button-up shirt. All buttons remain unbuttoned. The first competitor to button five buttons wins.
 
 Flamingo Battle
 ------------
-Players are given a pillow, and then asked to stand on one foot. The players must engage in a pillow fight. First to fall or lower leg loses.
+Each competitor receives a pillow and is then asked to stand on one foot. The competitors must engage in a pillow fight. The first competitor to fall or lower their leg loses.
 
 Capital Challenge
 ------------
-Players alternate nameing of U.S. state capitals. First with incorrect capital loses.
+The competitors alternate naming U.S. state capitals. The first competitor to respond with an incorrect response loses.
 
 Jumping Jack Attack
 ------------
-Players complete 10 jumping jacks. First to finish wins.
+The competitors complete 10 jumping jacks. The first competitor to finish wins.
 
 Thumb Wrestling
 ------------
-Traditional rules, as decided by the other players. All players must chant "One! Two! Three! Four! I declare thumb war!". NO CHEATING!
+The competitors engage in a traditional thumb wrestling match. Traditional rules, as decided by the non-competing players. All players must chant "One! Two! Three! Four! I declare a thumb war!". NO CHEATING! 
 
 Draw a Tattoo
 ------------
-Everyone draws a tattoo on their hand. We're not sure what this accomplishes. Social!
+All players draw a tattoo on their hand. We're not sure what this accomplishes. Social!
 
 Debate Challenge
 ------------
-Each player talks for one minute about a random topic, as decided by the other players. Players will be assigned the pro or con of the topic, as decided by the other players. Other players will judge winning position.
+The non-competing players select a random topic. The non-competing players assign the pro and con position to each of the competitors. Each competitor talks for one minute about the topic. The non-competing players will decide the winning position.
 
 Odds or Evens Eyebrows
 ------------
-Challengee gets to choose odds or evens. A pinch of eyebrow hairs are taken from the challenger. Total number of eyebrows is counted. If challengee's choice matches the count of the eyebrows, challengee wins, else challenger wins.
+The challenged competitor gets to choose "odds" or "evens". A non-competing player removes a pinch of eyebrow hairs from the challenging competitor. The non-competing player counts the number of eyebrow hairs. The challenged competitor wins if the count matches their selection. Otherwise, the challenging competitor wins.
 
 Quarter Craze
 ------------
-Players bounce quarters into a cup placed on the table. First into the cup wins.
+The competitors bounce quarters into a cup placed on the table. The first competitor to bounce a quarter into the cup wins.
 
 Limbo Challenge
 ------------
-Traditional rules, as decided by the other players. First to touch limbo stick, or fall, loses.
+Traditional rules, as decided by the non-competing players. The first competitor to touch the limbo stick, or fall, loses.
 
 Tiddlywink Tiddler
 ------------
-Traditional rules, as decided by the other players. First to tiddlywink 10 (or 5 depending on sobriety) pieces wins.
+Traditional rules, as decided by the non-competing players. The first competitor to tiddlywink 10 (or 5 depending on sobriety) pieces wins.
 
 Jokes-A-Top
 ------------
-Players are offered 10 seconds to tell a joke. Joke teller who receives most laughs wins. In case of doubt, person to the right of the challenger decides.
+The non-competing players offer competitors ten seconds to tell a joke. The joke teller who receives the most laughs from non-competing players wins. When in doubt, the player to the right of the challenging competitor decides.
 
-Card Castle Constructor
+Card Castle Construction
 ------------
-Players build a castle out of 15 cards. First to topple loses.
+Each competitor builds a castle out of 15 playing cards. The owner of the first card castle to fall down loses.
 
 Rodeo Shoe Tie
 ------------
-Players must untie shoes before beginning. Other players yell, "One! Two! Three! Rodeo shoe tie! YEEHAW!". First to tie both shoes wins.
+The competitors untie their shoes. The non-competing players yell, "One! Two! Three! Rodeo shoe tie! YEEHAW!". The first competitor to tie both of their shoes wins.
 
 Vocal Vibrations
 ------------
-Players must place back massager over throat and recite a sentence of their choosing. Other players must translate the sentence to the common language. If one on can guess it, the reciting player loses.
+The competitors take turns to recite a sentence with a back massager over their throat. The non-competing players must translate the sentence to the common language. The first competitor to recite a sentence that fails to translate loses.
 
-Coin Flip Face Off!!!1!11
+Coin Flip Face-Off!!!1!11
 ------------
-Traditional rules, as decided by the other players. Incorrect guess loses.
+Traditional rules, as decided by the non-competing players. The first competitor with an incorrect guess loses.
 
 Belching Bonanza
 ------------
-Players get ten seconds to drink a carbonated beverage. Loudest burp, as decided by other players, wins.
+The competitors each take ten seconds to drink a carbonated beverage. The competitors take turns belching. The non-competing players rank the belches based on volume. The competitor with the loudest belch wins.
 
 Beer Bottle Balance Battle
 ------------
-Players attempt to balance an empty beer bottle on their foreheads. First to let the bottle leave contact with their face loses.
-
+The competitors attempt to balance an empty beer bottle on their foreheads. The first competitor to let the bottle leave contact with their face loses.
 
 Anti-Spelling Bee
 ------------
-Starting with challenger, players alternate offering letters. First to spell a word with the letters loses, but it MUST be possible to spell a word with the letters. Must be at least four letters. No proper nouns.
+Starting with the challenging competitor, the competitors alternate offering letters. The first competitor to spell a word with the letters loses, but it MUST be possible to spell a word with the letters. Must be at least four letters. No proper nouns.
 
 Lion and Lamb
 ------------
-Players are issued roles of lion and lamb, as decided by the other players. Each must recite phrase "I am the Lion" and "I am the Lamb", respectively, repeatedly. First to mess up their respective phrase, loses. Phrase recital MUST happen at the same time.
+The non-competing players assign each of the competitors one role of "lion" or "lamb." The competitors must repeat the phrase "I am the Lion" or "I am the Lamb", depending on their role. The first competitor to mess up their respective phrase loses. Phrase recital MUST happen at the same time.
 
 Flip Cup Mania
 ------------
-Issue threec upts for ear player. Cup is filled 1/3 ful. First to flip all three cups without spilling the contents wins.
+Each competitor fills three cups 1/3 full of their preferred beverage.  The non-competing players decide the start of the race. When the race begins, the competitors must drink the contents of each cup and before flipping the cup on its top. The first competitor to flip all three cups without spilling the beverage wins.
 
 Minuteman Food Stuffing Challenge
 ------------
-Each player must add an increasing amount of marshmallows, or food, in their mouth within 60 seconds. Player with most contents wins.
+The non-competing players start a 60-second timer. Each competitor player must insert marshmallows, or food, in their mouth. When the timer ends, The competitor with the most food in their mouth wins.
 
 Oily Hand Wrestling
 -------------
-Players engage in traditional arm wrestling match after soaking ajoining hands in vegitable oil.
+The competitors coat their right hands with vegetable oil. Then the competitors engage in a traditional arm-wrestling match to determine the winner.
 
 Mind Math Problems
 -------------
-Multiplication/Division/Subtraction/Addition. No paper or pencile allowed. Other players write down problem. First player to solve outload with correct answer wins.
+The player to the right of the challenging competitor selects a simple math problem. The first competitor to offer a correct verbal solution, without pen and paper, wins.
 
 Finger Pit Paper Cut
 -------------
-Players alternate swiping paper between the opponents fingers. First player to excuse themselves from the challenge loses. If both players have four finger pit paper cuts, they both lose for being stubborn.
+The competitors take turns swiping paper between the opponent's fingers. The first competitor player to excuse themselves from the challenge loses. If both competitors have four finger pit paper cuts, they both lose for being stubborn. The non-competing players select a new challenge.
 
 Questionable Quirkiness
 -------------
-Players take turns exchanging questions. First to hesitate for more than 2 seconds or to respond with a statement loses.
+The competitors take turns exchanging questions. The first competitor to 1) hesitate for more than two seconds or 2) respond with a non-question loses.
 
 Swear Off!
 -------------
-First player recites a swear word. Players alternate repeating all the previous swear words and adding one of their own. First player to incorrectly recite previous swear words loses.
+The non-competing players select an initial swear word for a verbal list. The competitors alternate repeating the verbal list before adding a new word. The first competitor to recite the verbal list with a mistake loses.
 
 Invisible Chair Insane Challenge
 -------------
-Players pretend to sit on an invisible chair while holding a beverage continer. First player to leave the seated position loses.
+The competitors pretend to sit on an invisible chair while holding a beverage. The first competitor to leave the seated position loses.
 
 Pink Belly Challenge
 -------------
-Challengee must sustain belly slapping for 30 seconds. If successful challengee wins, else loses.
-
-
-
-
-
+The challenged competitor must sustain belly slapping for 30 seconds. If successful, the challenged competitor wins. Otherwise, the challenging competitor loses.
